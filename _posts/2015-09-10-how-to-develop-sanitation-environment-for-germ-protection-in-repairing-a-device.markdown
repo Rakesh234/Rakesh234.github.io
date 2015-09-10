@@ -8,7 +8,7 @@ layout: post
 1.The same laptop is being touched by numerous understudies 
 2.Many times, the laptop parts are repaired or supplanted yet nor sterilized 
 3.Students, coaches, and different specialists amid laptop repair training handle repair lives up to expectations yet may neglect to utilize gloves or clean the table. 
-4.Accumulation of dust and organisms on the work stations </p>
+4.Accumulation of dust and organisms on the work stations 
 
 <b>Cleanliness Habits for Laptop Technicians:</b>
 

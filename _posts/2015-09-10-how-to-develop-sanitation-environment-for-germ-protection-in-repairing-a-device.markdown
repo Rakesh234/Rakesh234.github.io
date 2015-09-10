@@ -5,10 +5,12 @@ layout: post
 ---
 <p align="justify">It is very interesting when we approach to create cleanliness propensities for germ assurance while doing laptop repair training. Be that as it may, it is required to look profound into the germiest occupation you do consistently - to repair various laptops, parts, and links. Electronic contraptions whether portable, PC, tablets or even laptops are dirtier and home of a great many germs which you can't see with uncovered eyes! Presently, in the event that you are thinking how, then take after the beneath reasons: </p>
 
-1.The same laptop is being touched by numerous understudies 
-2.Many times, the laptop parts are repaired or supplanted yet nor sterilized 
-3.Students, coaches, and different specialists amid laptop repair training handle repair lives up to expectations yet may neglect to utilize gloves or clean the table. 
-4.Accumulation of dust and organisms on the work stations 
+<ul>
+<li>1.The same laptop is being touched by numerous understudies</li>
+ <li>2.Many times, the laptop parts are repaired or supplanted yet nor sterilized</li> 
+ <li>3.Students, coaches, and different specialists amid laptop repair training handle repair lives up to expectations yet may neglect to utilize gloves or clean the table.</li> 
+ <li>4.Accumulation of dust and organisms on the work stations </li>
+</ul>
 
 <b>Cleanliness Habits for Laptop Technicians:</b>
 

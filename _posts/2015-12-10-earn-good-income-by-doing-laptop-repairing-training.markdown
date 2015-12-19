@@ -19,4 +19,4 @@ With software error, a specialist can make at least Rs. 2000 to Rs. 3000 or much
 
 If an understudy has expertise in both card and chip level repairing then he can autonomously handle things. For instance, he can take or finish diverse levels of repairing and can gain Rs. five thousand even in a day. 
 
-With great quantities of laptops and quality services, technicians can win Rs. fifty to Rs. sixty thousands effectively in a month. Laptop repairing training in Delhi is a course as well as an amazing chance to gain more at an early age through specialized ability advancement. 
+With great quantities of laptops and quality services, technicians can win Rs. fifty to Rs. sixty thousands effectively in a month. <a href="http://laptoprepairing.blogfree.net/?t=5247252">Laptop repairing training in Delhi is a course</a> as well as an amazing chance to gain more at an early age through specialized ability advancement.
